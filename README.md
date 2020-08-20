@@ -1,0 +1,2 @@
+# Best-Skin-Specialist-in-Ludhiana-Dr.-Shikha-Aggarwal
+Losing skin color in blotches? It's time to have a thorough check-up for vitiligo, a chronic pigmentation skin disorder. Dr. Shikha Aggarwal is one of the best skin specialist in Ludhiana, who provides effective and advanced treatments for autoimmune skin diseases like vitiligo. She provides consultation and relevant solutions to ensure optimum results. 
